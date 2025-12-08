@@ -1,1 +1,1 @@
-venha aprender aqui
+venha aprender aqui sobre alguns componentes de placa mãe
